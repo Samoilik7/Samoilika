@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Samoilika | Dmitry
+- 👋 Hi, I’m @Samoilik7 | Dmitry
 - 👀 I’m interested in learn how to work Sql, Python, C++, C#...
 - 🌱 I’m currently learning Python, C++, Sql.
 - 📫 How to reach me My discord: samoilik7,  My telegram: @Samoilik7
